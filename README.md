@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Micazaratev
+- 👀 I’m interested in games
+- 🌱 I’m currently learning medicine
+- 📫 How to reach me instagram.com/micazaratev
